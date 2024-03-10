@@ -29,4 +29,4 @@ I'm [**Azizbek**](https://t.me/azizbekxoliyorov),  web developer from Uzbekistan
 ## Contact
 - [@azizbekwebdev](https://t.me/azizbekwebdev) on Telegram 〽
 - [@kholiyorov_azizbek](https://www.instagram.com/kholiyorov_azizbek) on Instagram 〽
-- [@XoliyorovAzizbek](https://github.com/AzizbekXoliyorov) on Github ( ***Second Profile*** ) 〽
+- [@AzizbekXoliyorov](https://github.com/AzizbekXoliyorov) on Github ( ***Second Profile*** ) 〽
